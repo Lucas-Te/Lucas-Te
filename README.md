@@ -67,7 +67,7 @@
 www.linkedin.com/in/lucas-teixeira-de-castro-142b54270
 
 ✉️ [Email]
-lucas.teixeira-de-castro@utbm.fr
+teixeiradecastrolucas@gmail.com
 
 
 <!--
